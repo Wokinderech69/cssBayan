@@ -1,1 +1,1 @@
-https://Wokinderech69.github.io/cssBayan/cssBayan/index.html
+https://wokinderech69.github.io/cssBayan/cssBayan/index.html
